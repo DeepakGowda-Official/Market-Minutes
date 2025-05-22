@@ -68,6 +68,4 @@ Let’s make smarter selling a standard.
 **👉 [Launch Market Minutes](https://market-minutes.netlify.app/)**  
 
 
----
 
-**#MarketMinutes** | **#SmartSelling** | **#SideHustles** | **#TimeManagement** | **#NoMoreSpam**
